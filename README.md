@@ -8,7 +8,7 @@ It can be used with the DP Golf Stimpmeter to make it easier to calculate puttin
 
 The DP Golf Stimpmeter is on sale and can be bought from Amazon or eBay here:
 
-<a href="https://www.ebay.co.uk/itm/324983551890">DP Golf Stimpmeter eBay Link with international shipping</a>
+<a href="https://www.ebay.co.uk/itm/325659106822">DP Golf Stimpmeter eBay Link with international shipping</a>
 
 <a href="https://www.amazon.com/dp/B09XKN5VR6">DP Golf Stimpmeter Amazon.com Link</a>
 
