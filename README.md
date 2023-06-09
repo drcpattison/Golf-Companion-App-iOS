@@ -6,7 +6,9 @@ It can be used with the DP Golf Stimpmeter to make it easier to calculate puttin
 
 <a href="https://apps.apple.com/app/golf-companion/id6444909812">Golf Companion App by DP Golf available on the Apple App Store</a>
 
-The DP Golf Stimpmeter is on sale and can be bought from Amazon or eBay here:
+The DP Golf Stimpmeter is on sale and can be ordered from the following sales channels:
+
+<a href="https://www.dp-golf.co.uk">Official DP Golf Store with international shipping</a>
 
 <a href="https://www.ebay.co.uk/itm/325659106822">DP Golf Stimpmeter eBay Link with international shipping</a>
 
