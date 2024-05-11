@@ -10,11 +10,11 @@ The DP Golf Stimpmeter is on sale and can be ordered from the following sales ch
 
 <a href="https://www.dp-golf.co.uk">Official DP Golf Store (with international shipping)</a>
 
-<a href="https://www.ebay.co.uk/itm/325659106822">DP Golf Stimpmeter eBay Link with international shipping</a>
+<a href="https://www.ebay.co.uk/itm/325659106822">DP Golf Speedmeter eBay Link with international shipping</a>
 
 <a href="https://www.amazon.com/dp/B0CCLGZ1FR">DP Golf Speedmeter Amazon.com Link</a>
 
-<a href="https://www.amazon.co.uk/Golf-Stimpmeter-Speedmeter-accurately-measure/dp/B09XKRLQ9Q">DP Golf Stimpmeter Amazon.co.uk Link</a>
+<a href="https://www.amazon.co.uk/dp/B0CCTCQHCF">DP Golf Speedmeter Amazon.co.uk Link</a>
 
 <a href="https://www.amazon.co.jp/dp/B09XKQGT3X">DP Golf Stimpmeter Amazon.co.jp Link</a>
 
